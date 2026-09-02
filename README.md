@@ -29,15 +29,15 @@ YOU'VE TUNED IN TO THE [[#1 MOST VALUABLE]] PROFILE!!
 **DO NOT INTERACT IF:**
 
 > Homophobic, transphobic, xenophobic, Islamophobic, racist, sexist, ableist, misogynistic, etc.
-  
+>  
 > Invalidates people's pronouns, gender, or identity
- 
+> 
 > Pedophile / sexualizes minors / jokes about r×pe
- 
+> 
 > Stranger Things, Hazbin/Helluva fandoms
-
+>
 > My Hero Academia fandom *(not a hard DNI, I block freely)*
-
+>
 > Under 16 preferably don't interact.
 
 **BYI:**
