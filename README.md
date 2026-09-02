@@ -42,10 +42,13 @@ YOU'VE TUNED IN TO THE [[#1 MOST VALUABLE]] PROFILE!!
 
 **BYI:**
 
-> Medically diagnosed with ADHD & Bipolar 1
-> I use slurs I **CAN** reclaim
-> I make sex/suggestive jokes, tell me if you're uncomfortable and I'll stop.
-> Dark humor is mostly reserved for close friends
+>  Medically diagnosed with ADHD & Bipolar 1
+>
+>  I use slurs I **CAN** reclaim
+>
+>  I make sex/suggestive jokes, tell me if you're uncomfortable and I'll stop.
+>
+>  Dark humor is mostly reserved for close friends
 
 ---
 
