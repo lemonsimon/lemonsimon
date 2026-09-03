@@ -1,6 +1,7 @@
 # 📺 WELCOME TO THE [[WORLD WIDE WEB]]!!
 
-## ★ HELLO, VIEWER!! ★
+## ★ HELLO, VIEWER!! ★ 
+![](https://komarev.com/ghpvc/?username=lemonsimon)
 
 YOU'VE TUNED IN TO THE [[#1 MOST VALUABLE]] PROFILE!!
 
