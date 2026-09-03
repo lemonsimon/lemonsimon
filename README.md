@@ -2,7 +2,8 @@
 
 ## ★ HELLO, VIEWER!! ★ 
 ![](https://komarev.com/ghpvc/?username=lemonsimon)
-YOU'VE TUNED IN TO THE [[#1 MOST VALUABLE]] PROFILE!!
+
+ YOU'VE TUNED IN TO THE [[#1 MOST VALUABLE]] PROFILE!!
 
 <p align="center">
   <img src="https://i.ibb.co/sd3qVC9v/Untitled129-20260902144852.png" width="500">
