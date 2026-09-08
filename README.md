@@ -39,7 +39,7 @@
 >
 > My Hero Academia fandom *(not a hard DNI, I block freely)*
 >
-> Under 16 preferably don't interact.
+> Under 18 preferably don't interact.
 
 **BYI:**
 
