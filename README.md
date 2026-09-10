@@ -51,6 +51,14 @@
 >
 >  Dark humor is mostly reserved for close friends
 
+**REGARDING MY SKINS:**
+> You *CAN* colorpick my skins, I do not mind and will never gatekeep my colors.
+>
+> You *CANNOT* copy my skins bar for bar, that is rude and just a bitchy move I spend time on them even if it doesn't look like I do, that is my work not YOURS.
+>
+> You *CAN* take inspiration and ask me how I did things on my skins, 99% of the time I will help you and provide information on it.
+>
+> If you do not like a certain fandom skin of mine, feel free to hide/block me, thanks.
 ---
 
 ## 📺 MY INTERESTS
