@@ -1,6 +1,6 @@
-# 𖤓 WELCOME, TRAVELER 𖤓
+# 𖤓 Hello dearest wanderer, welcome ! 𖤓
 
-## ✦ HELLO, WANDERER! ✦
+## ✦ Where the yarrow grows. . . ✦
 
 ![](https://komarev.com/ghpvc/?username=lemonsimon)
 
