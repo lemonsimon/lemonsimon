@@ -16,7 +16,7 @@
 
 ✦ I draw sometimes!
 ✦ He/she, please refrain from they/them!
-✦ 19 years old
+✦ 20 years old
 ✦ Not much else LOL
 
 **CURRENT FIXATION:**
