@@ -4,7 +4,7 @@
 
   .    simon , he / she , bipolar + ADHD diagnosed . . genderfluid , pansexual , androgynous .
 
-<p align="left">
+<p align="center">
   <img src="https://welcomehomerestorationproject.net/assets/images/Eddieblink.gif" width="100">
   <img src="https://welcomehomerestorationproject.net/assets/images/howdyblink.gif" width="100">
 </p>
