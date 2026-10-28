@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://welcomehomerestorationproject.net/assets/images/Belovedhome.gif" width="100">
+  <img src="https://welcomehomerestorationproject.net/assets/images/Belovedhome.gif" width="350">
 </p>               <table width="100%">
   <tr>
     <td width="15%" align="center" valign="middle">
