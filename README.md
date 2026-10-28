@@ -1,7 +1,9 @@
 <p align="center">
   <img src="https://welcomehomerestorationproject.net/assets/images/Belovedhome.gif" width="300">
 </p>               simon , he / she , bipolar + ADHD diagnosed . .
-             genderfluid , pansexual , androgynous . 
+             genderfluid , pansexual , androgynous . <p align="right">
+  <img src="https://welcomehomerestorationproject.net/assets/images/Belovedhome.gif" width="100">
+             </p>
              
              hi I'm Simon! I'm a 20 year old artist just tryna live.
 
