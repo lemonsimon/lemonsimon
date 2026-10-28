@@ -5,8 +5,11 @@
     <td valign="middle" align="center">
       <img src="https://welcomehomerestorationproject.net/assets/images/Eddieblink.gif" width="100">
     </td>
-    <td valign="middle" align="left">
+    <td valign="middle" align="center">
       simon , he / she , bipolar + ADHD diagnosed . . genderfluid , pansexual , androgynous .
+    </td>
+    <td valign="middle" align="center">
+      <img src="https://welcomehomerestorationproject.net/assets/images/howdyblink.gif" width="100">
     </td>
   </tr>
 </table>
