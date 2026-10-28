@@ -13,7 +13,7 @@
                   pony town only
                   
 
-                 DNI - racist . homophobic . hazbin/helluva SUPPORTERS not fans, idm u guys . etc , thanks.
+                 DNI - racist . homophobic . hazbin/helluva SUPPORTERS!! not fans, i don't mind u guys . etc , thanks.
                  
 <p align="center">
   <img src="https://welcomehomerestorationproject.net/assets/images/Seasonspring.gif" width="200">
