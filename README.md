@@ -1,17 +1,15 @@
 <p align="center">
   <img src="https://welcomehomerestorationproject.net/assets/images/Belovedhome.gif" width="300">
-</p>               <div align="center">
-  <table>
-    <tr>
-      <td valign="middle" align="left">
-        simon , he / she , bipolar + ADHD diagnosed . . genderfluid , pansexual , androgynous .
-      </td>
-      <td valign="middle" align="center">
-        <img src="https://welcomehomerestorationproject.net/assets/images/Eddieblink.gif" width="100">
-      </td>
-    </tr>
-  </table>
-</div>
+</p>               <table>
+  <tr>
+    <td valign="middle" align="center">
+      <img src="https://welcomehomerestorationproject.net/assets/images/Eddieblink.gif" width="100">
+    </td>
+    <td valign="middle" align="left">
+      simon , he / she , bipolar + ADHD diagnosed . . genderfluid , pansexual , androgynous .
+    </td>
+  </tr>
+</table>
              
              hi I'm Simon! I'm a 20 year old artist just tryna live.
 
