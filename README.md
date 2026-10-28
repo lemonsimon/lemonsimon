@@ -20,4 +20,7 @@
   <img src="https://welcomehomerestorationproject.net/assets/images/Seasonsummer.gif" width="200">
   <img src="https://welcomehomerestorationproject.net/assets/images/SeasonAutumn.gif" width="200">
 </p>
-![](https://komarev.com/ghpvc/?username=lemonsimon)
+
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=lemonsimon">
+</p>
