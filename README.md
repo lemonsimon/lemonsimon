@@ -1,7 +1,7 @@
 <p align="center">
   <img src="https://welcomehomerestorationproject.net/assets/images/Belovedhome.gif" width="350">
   <br>
-  simon , he / she , bipolar + ADHD diagnosed . . genderfluid , pansexual , androgynous .
+  simon , he / any , bipolar + ADHD diagnosed . . genderfluid , pansexual , androgynous .
 </p>              
 
 
