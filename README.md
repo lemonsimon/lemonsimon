@@ -22,6 +22,7 @@
                   
 
                  DNI - racist . homophobic . hazbin/helluva SUPPORTERS!! not fans, i don't mind u guys . etc , thanks.
+                                    MINORS DNI!!!! DO NOT FOLLOW PLEASE!
                  
 <p align="center">
   <img src="https://welcomehomerestorationproject.net/assets/images/Seasonspring.gif" width="200">
